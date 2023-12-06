@@ -1,2 +1,2 @@
 # hehe
-For U
+for fun
